@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LeanDeg
+- 👀 I’m interested in fixing code
+- 🌱 I’m currently learning how to live
